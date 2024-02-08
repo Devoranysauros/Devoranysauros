@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me-
 - Reddit: www.reddit.com/user/Devoranysauros
-- Discord: Discord.com/users/983779168896573552 
+- Discord: ww.Discord.com/users/983779168896573552 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: i like sketching MGS characters for fun 📝
 - BTW: you can call me Devy
