@@ -6,7 +6,7 @@
 - Reddit: www.reddit.com/user/Devoranysauros
 - Discord: www.Discord.com/users/983779168896573552 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i like sketching MGS characters for fun 📝
+- ⚡ Fun fact: no fun fact go away 📝
 - BTW: you can call me Devy
 <!---
 Devoranysauros/Devoranysauros is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
